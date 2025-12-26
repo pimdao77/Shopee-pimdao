@@ -4,6 +4,9 @@
 **A dedicated Digital Transformation student who believes that enduring business success is built upon the synergy of quality resources—specifically, high-caliber talent and data-driven insights.**
 With a technical foundation in Python, SQL, and Data Mining, I don't just analyze numbers—I seek to translate complex insights into meaningful business solutions. Beyond the classroom, I am a proactive problem-solver who thrives on real-world challenges, I find genuine joy in the iterative cycle, using creativity to turn daily obstacles into powerful growth opportunities. I am eager to bring this hands-on energy to the Shopee Apprentice Program, humbly learning from the best while taking full ownership to drive measurable success.
 
+### 🎀 For reviewing my resume
+* 👉 [pimdao's resume](https://www.canva.com/design/DAG8f2_dllo/nKBLEaKjRSOnOYsozeqcCA/view?utm_content=DAG8f2_dllo&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hcc905ad7ac)
+
 ---
 
 ### 🚀 What I bring to the table
